@@ -1,2 +1,4 @@
 # firstrepo
-tiriberk
+ma tirich berk
+i love 🍕 🍔 👞.
+wew wechbih hbibna
